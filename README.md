@@ -1,4 +1,4 @@
-## 你好, HY.Tian
+## 你好, HY. Tian
 
 ### Academic Schedule
 
